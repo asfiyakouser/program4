@@ -1,0 +1,1 @@
+"The sun doesnot shine for itself,the flower doesn't spread the kindness for themselves , the rivers don't flow for themselves ,living for other's is a rule of nature,life is good when you are happy but it is much better when other's are happy because of you."
